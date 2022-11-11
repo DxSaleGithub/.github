@@ -10,7 +10,7 @@ Of course, you can also use our platform if you’re just here to invest in a pr
 
 We are looking for motivated and experienced people.
 
-- [Blockchain Engineer]([https://www.steiner.ch/index.php?id=604&sid=265&L=0](https://crypto.jobs/jobs/blockchain-engineer-at-dxsale-network-1))
+- [Blockchain Engineer](https://crypto.jobs/jobs/blockchain-engineer-at-dxsale-network-1)
 
 ## 🔗 Links
 
