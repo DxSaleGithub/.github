@@ -10,10 +10,11 @@ Of course, you can also use our platform if you’re just here to invest in a pr
 
 We are looking for motivated and experienced people.
 
-- [Blockchain Engineer](https://crypto.jobs/jobs/blockchain-engineer-at-dxsale-network-1)
+Join our Telegram or write us an Email for more informaion.
 
 ## 🔗 Links
 
+- [Telegram](https://t.me/DxSale)
 - [APP](https://dx.app/)
 - [Landing Page](https://www.dxsale.network/)
 - [Documentation](https://docs.dxsale.network/)
