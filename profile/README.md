@@ -10,7 +10,7 @@ Of course, you can also use our platform if you’re just here to invest in a pr
 
 We are looking for motivated and experienced people.
 
-Join our Telegram or write us an Email for more informaion.
+Join our Telegram or write us an email for more information.
 
 ## 🔗 Links
 
